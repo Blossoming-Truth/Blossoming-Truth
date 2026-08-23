@@ -1,4 +1,5 @@
-<img width="288" height="168" alt="Image" src="https://github.com/user-attachments/assets/1bcc9070-8495-4661-a4e3-7c438fff6fc0" />
+
+<img width="1200" height="675" alt="Image" src="https://github.com/user-attachments/assets/ec3e7ec7-b4cd-4a10-8b64-d08ec903b12f" />
 
 # BYI-Dni-list
 Hello! my name is Viverie but mostly know as Viv, im a minor. nicknames are allowed!😁 /p i am a cuddly person so c×h always enc unless dni in name. 
