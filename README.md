@@ -1,3 +1,5 @@
+<img width="288" height="168" alt="Image" src="https://github.com/user-attachments/assets/1bcc9070-8495-4661-a4e3-7c438fff6fc0" />
+
 # BYI-Dni-list
 Hello! my name is Viverie but mostly know as Viv, im a minor. nicknames are allowed!😁 /p i am a cuddly person so c×h always enc unless dni in name. 
 Dni list is js basic dni criteria.
