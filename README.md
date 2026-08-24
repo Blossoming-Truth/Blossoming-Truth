@@ -1,3 +1,4 @@
+<img width="1200" height="675" alt="Image" src="https://github.com/user-attachments/assets/b806098f-9595-4995-afdb-fb6cb39351c8" />
 <img width="1200" height="675" alt="Image" src="https://github.com/user-attachments/assets/ec3e7ec7-b4cd-4a10-8b64-d08ec903b12f" />
 
 # 🌠 . Byi & About me
@@ -17,6 +18,7 @@ dniuPinned = dni unless pinned.
 
 Thats pretty much it .. Farewell and meet you someday , anonymous ! 🎀
 
-<img width="288" height="168" alt="Image" src="https://github.com/user-attachments/assets/32de0a3b-5f34-4d3a-8508-71bcdebca3f5" />
+<img width="1200" height="675" alt="Image" src="https://github.com/user-attachments/assets/32de0a3b-5f34-4d3a-8508-71bcdebca3f5" />
 
 WHERE DID MONIKA'S BOW GO..
+<img width="736" height="414" alt="Image" src="https://github.com/user-attachments/assets/f24fa8c9-6268-47c3-babe-c69cb578ca0d" />
