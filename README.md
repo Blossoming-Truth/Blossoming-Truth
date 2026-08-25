@@ -1,8 +1,16 @@
 <img width="1200" height="975" alt="Image" src="https://github.com/user-attachments/assets/b806098f-9595-4995-afdb-fb6cb39351c8" />
 <img width="1200" height="675" alt="Image" src="https://github.com/user-attachments/assets/ec3e7ec7-b4cd-4a10-8b64-d08ec903b12f" />
 
-# 🌠 . Byi & About me
-Hello! my name is Viverie but mostly know as Viv . nicknames are allowed as long as its appropriate !😁 i am a cuddly person so c×h always enc unless dni in name. i tend to sometimes avoid everyone because i often get sudden burnouts . im sorry if it bothers you i swear i didnt mean it , i only need alone time for a moment.
+$\color{#cd885d}{Monika~Heavy ~fictkin ~and ~Pony ~Town's ~Monika ! ♡}$
+
+$\color{#b77a53}{----------------------------------------}$
+
+$\color{#a55d3d}{ ♡ . ~Byi ~and ~abt ~me.}$
+
+
+$\color{#cd885d}{Hello!~my ~name ~is ~Viverie ~or ~call ~me ~Viv.}$ $\color{#a55d3d}{nicknames? ~allowed! ~but ~its ~appropriate ~ok?}$ $\color{#cd885d}{i ~am ~a ~cuddly ~person ~so ~c×h ~always ~encouraged!}$ $\color{#a55d3d}{unless ~dni ~in ~name. ~i ~tend ~to ~sometimes ~avoid}$ $\color{#cd885d}{everyone ~because ~i ~often ~get ~sudden ~burnouts .}$ $\color{#a55d3d}{im ~sorry ~if ~it ~bothers ~you ~i ~swear ~i ~didnt ~mean}$ $\color{#cd885d}{it , ~i ~only ~need ~alone ~time ~for ~a ~moment.}$
+
+$\color{#b77a53}{----------------------------------------}$
 
 # 😕 .  Dni
 Dni list is js basic dni criteria.
