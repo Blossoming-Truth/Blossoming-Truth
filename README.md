@@ -57,4 +57,4 @@ $\color{#b77a53}{------------------}$
 
 $\color{#cd885d}{WHERE ~DID ~MONIKA'S ~BOW ~GO..}$ 😳😤
 
-<img width="1200" height="975" alt="Image" src="https://github.com/user-attachments/assets/f24fa8c9-6268-47c3-babe-c69cb578ca0d" />
+<img width="1200" height="975" alt="Image" src="https://github.com/user-attachments/assets/e5049063-d52d-49f4-a8ee-d0f3c5125ffa" />
