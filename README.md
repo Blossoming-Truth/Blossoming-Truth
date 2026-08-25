@@ -50,7 +50,7 @@ $\color{#b77a53}{------------------}$
 
 $\color{#cd885d}{Thats ~pretty ~much ~it ..}$ $\color{#a55d3d}{Farewell ~and ~meet ~you ~someday , ~anonymous ~!}$ 🎀
 
-<img width="1200" height="675" alt="Image" src="https://github.com/user-attachments/assets/32de0a3b-5f34-4d3a-8508-71bcdebca3f5" />
+<img width="675" height="675" alt="Image" src="https://github.com/user-attachments/assets/c28e30ee-45b5-4c1e-9a85-886d12695642" />
 
 $\color{#b77a53}{------------------}$
 
