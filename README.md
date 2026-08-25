@@ -57,4 +57,4 @@ $\color{#b77a53}{------------------}$
 <img width="275" height="275" alt="Image" src="https://github.com/user-attachments/assets/c28e30ee-45b5-4c1e-9a85-886d12695642" />
 
 
-<img width="1200" height="675" alt="Image" src="https://github.com/user-attachments/assets/e5049063-d52d-49f4-a8ee-d0f3c5125ffa" />
+<img width="1200" height="175" alt="Image" src="https://github.com/user-attachments/assets/4b1642bd-431f-4625-a1ac-d8c1aaec1994" />
