@@ -1,4 +1,4 @@
-<img width="1200" height="975" alt="Image" src="https://github.com/user-attachments/assets/b806098f-9595-4995-afdb-fb6cb39351c8" />
+<img width="1200" height="975" alt="Image" src="https://github.com/user-attachments/assets/85e89b7c-cce8-4c0e-9e5f-54ea4a9cdfa8" />
 
 $\color{#b77a53}{------------------}$
 
