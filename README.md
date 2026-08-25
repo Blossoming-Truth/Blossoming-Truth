@@ -3,7 +3,7 @@
 $\color{#b77a53}{------------------}$
 
 
-<img width="1200" height="675" alt="Image" src="https://github.com/user-attachments/assets/ec3e7ec7-b4cd-4a10-8b64-d08ec903b12f" />
+<img width="1200" height="675" alt="Image" src="https://github.com/user-attachments/assets/0af34deb-a142-48d9-8367-aa509323d6b3" />
 
 $\color{#cd885d}{Monika~Heavy ~fictkin ~and ~Pony ~Town's ~Monika ! ♡}$
 
