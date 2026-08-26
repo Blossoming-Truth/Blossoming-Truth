@@ -1,5 +1,6 @@
-<img width="1200" height="175" alt="Image" src="https://github.com/user-attachments/assets/14511553-8367-42d0-a80e-67fbbee3c0ec" />
+<img width="1200" height="175" alt="Image" src="https://github.com/user-attachments/assets/14511553-8367-42d0-a80e-67fbbee3c0ec" /> 
 
+$\color{#FF0000}{~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~}$ $\color{#cd885d}{loading~img.file . . Loading ~txt.file . .}$
 
 
 <img width="1200" height="675" alt="Image" src="https://github.com/user-attachments/assets/0af34deb-a142-48d9-8367-aa509323d6b3" />
@@ -50,6 +51,9 @@ $\color{#b77a53}{------------------}$
 $\color{#cd885d}{Thats ~pretty ~much ~it ..}$ $\color{#a55d3d}{Farewell ~and ~meet ~you ~someday , ~anonymous ~!}$ 🎀
 
 $\color{#cd885d}{WHERE ~DID ~MONIKA'S ~BOW ~GO..}$ 😳😤
+
+$\color{#FF0000}{~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~}$ <img width="165" height="180" alt="Image" src="https://github.com/user-attachments/assets/e98e1a1d-2c91-4bfa-b6de-164c3d47c1ea" />
+
 
 $\color{#b77a53}{------------------}$
 
