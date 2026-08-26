@@ -52,8 +52,6 @@ $\color{#cd885d}{Thats ~pretty ~much ~it ..}$ $\color{#a55d3d}{Farewell ~and ~me
 
 $\color{#cd885d}{WHERE ~DID ~MONIKA'S ~BOW ~GO..}$ 😳😤
 
-$\color{#FF0000}{~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~}$ <img width="165" height="180" alt="Image" src="https://github.com/user-attachments/assets/e98e1a1d-2c91-4bfa-b6de-164c3d47c1ea" />
-
 
 $\color{#b77a53}{------------------}$
 
@@ -62,3 +60,6 @@ $\color{#b77a53}{------------------}$
 
 
 <img width="1200" height="175" alt="Image" src="https://github.com/user-attachments/assets/4b1642bd-431f-4625-a1ac-d8c1aaec1994" />
+
+$\color{#FF0000}{~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~}$ <img width="165" height="180" alt="Image" src="https://github.com/user-attachments/assets/e98e1a1d-2c91-4bfa-b6de-164c3d47c1ea" />
+
