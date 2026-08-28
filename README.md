@@ -50,27 +50,27 @@ $\color{#b77a53}{------------------}$
 $\color{#a55d3d}{ SPECIAL ~mentions!! (~my ~pinned ~friends ~tht}$
 $\color{#cd885d}{~have ~github. FOLLOW THEM!! ~⁠♡)}$
 
-[@StanMarshK1nn1e](https://github.com/username) 
+@StanMarshK1nn1e
 
 $\color{#cd885d}{ ~I ~LOVE ~YOU ~so ~MUCH ~MY ~DEARESTT. ~⁠♡}$
 
-[@mentally-stable](https://github.com/username) 
+@mentally-stable
 
 $\color{#a55d3d}{ ~HIHII ~AVEE ~!! ~oomcf ~>_<}$
 
-[@userrrxDDD](https://github.com/username)
+@userrrxDDD
 
 $\color{#cd885d}{~HIII ~MIMII !! ~Another ~oomcf :)) }$
 
-[@NatureRos3](https://github.com/username)
+• @NatureRos3
 
 $\color{#a55d3d}{~HELLO ~HELLO ~ROARR ~!! ~>_<}$
 
-[@october15th](https://github.com/username) 
+@october15th
 
 $\color{#cd885d}{~HIHI ~YUMII ~JAJSJAJAJ}$
 
-[@SomeMidtownScientist](https://github.com/username)
+@SomeMidtownScientist
 
 $\color{#a55d3d}{~HI ~MADDIEE >:) }$
 
@@ -78,7 +78,7 @@ $\color{#cd885d}{~LAST ~BUT ~NOT ~LEAST.. ~my ~newest}$
 $\color{#a55d3d}{~pinned ~friend!}$
 
 
-[@sera741](https://github.com/username)
+@sera741
 
 $\color{#a55d3d}{~HELLO ~SERA ~!!  ~HSHSHSJS }$
 
