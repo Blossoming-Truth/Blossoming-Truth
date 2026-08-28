@@ -45,14 +45,45 @@ $\color{#a55d3d}{⁠♪ . ~Monika ~heavy ~Fictkin ♡}$
 
 $\color{#cd885d}{• ~i ~am ~a ~heavy ~Monika ~fictkin ,}$ $\color{#a55d3d}{so ~avoid ~hating ~her ~infront ~of ~me ~like ~i ~said.}$ $\color{#cd885d}{i ~love ~her ~everything. ~she ~is ~me ~and ~i ~am ~her.}$ $\color{#a55d3d}{@Ponychievements ~Thank ~you ~for ~adding ~me ~as}$ $\color{#cd885d}{Pony ~town's ~Monika ! ♡}$
 
+$\color{#b77a53}{------------------}$
 
-$\color{#a55d3d}{ SPECIAL ~mentions!! (~my ~pinned ~friends ~tht ~have ~github. FOLLOW THEM!! ~⁠♡) }$
+$\color{#a55d3d}{ SPECIAL ~mentions!! (~my ~pinned ~friends ~tht}$
+$\color{#cd885d}{~have ~github. FOLLOW THEM!! ~⁠♡)}$
 
-[StanMarshK1nn1e](https://github.com/username) $\color{#cd885d}{ I LOVE YOU so MUCH MY DEARR. ⁠♡}$
-[mentally-stable](https://github.com/username) $\color{#a55d3d}{ HIHII AVEE !! oomcf >_<}$
-[userrrxDDD](https://github.com/username)
-$\color{#FF0000}{HIII MIMII !! Another oomcf ^_^}$
+[@StanMarshK1nn1e](https://github.com/username) 
 
+$\color{#cd885d}{ ~I ~LOVE ~YOU ~so ~MUCH ~MY ~DEARESTT. ~⁠♡}$
+
+[@mentally-stable](https://github.com/username) 
+
+$\color{#a55d3d}{ ~HIHII ~AVEE ~!! ~oomcf ~>_<}$
+
+[@userrrxDDD](https://github.com/username)
+
+$\color{#cd885d}{~HIII ~MIMII !! ~Another ~oomcf :)) }$
+
+[@NatureRos3](https://github.com/username)
+
+$\color{#a55d3d}{~HELLO ~HELLO ~ROARR ~!! ~>_<}$
+
+[@october15th](https://github.com/username) 
+
+$\color{#cd885d}{~HIHI ~YUMII ~JAJSJAJAJ}$
+
+[@SomeMidtownScientist](https://github.com/username)
+
+$\color{#a55d3d}{~HI ~MADDIEE >:) }$
+
+$\color{#cd885d}{~LAST ~BUT ~NOT ~LEAST.. ~my ~newest}$
+$\color{#a55d3d}{~pinned ~friend!}$
+
+
+[@sera741](https://github.com/username)
+
+$\color{#a55d3d}{~HELLO ~SERA ~!!  ~HSHSHSJS }$
+
+$\color{#cd885d}{~+My ~other ~oomfs ! ~it'll ~be ~too ~long ~to ~list ~all}$
+$\color{#a55d3d}{~of ~you ~here 0-0 , ~BUT ~LOVE ~YALL ~TOO!!}$
 
 $\color{#b77a53}{------------------}$
 
