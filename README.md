@@ -48,29 +48,29 @@ $\color{#cd885d}{• ~i ~am ~a ~heavy ~Monika ~fictkin ,}$ $\color{#a55d3d}{so ~
 $\color{#b77a53}{------------------}$
 
 $\color{#a55d3d}{ SPECIAL ~mentions!! (~my ~pinned ~friends ~tht}$
-$\color{#cd885d}{~have ~github. FOLLOW THEM!! ~⁠♡)}$
+$\color{#cd885d}{~have ~github. FOLLOW ~THEM!! ~⁠♡)}$
 
-@StanMarshK1nn1e
+$\color{#a55d3d}{@StanMarshK1nn1e}$
 
 $\color{#cd885d}{ ~I ~LOVE ~YOU ~so ~MUCH ~MY ~DEARESTT. ~⁠♡}$
 
-@mentally-stable
+$\color{#cd885d}{@mentally-stable}
 
 $\color{#a55d3d}{ ~HIHII ~AVEE ~!! ~oomcf ~>_<}$
 
-@userrrxDDD
+$\color{#cd885d}{@userrrxDDD}
 
 $\color{#cd885d}{~HIII ~MIMII !! ~Another ~oomcf :)) }$
 
-• @NatureRos3
+$\color{#a55d3d}{@NatureRos3}
 
 $\color{#a55d3d}{~HELLO ~HELLO ~ROARR ~!! ~>_<}$
 
-@october15th
+$\color{#cd885d}{@october15th}
 
 $\color{#cd885d}{~HIHI ~YUMII ~JAJSJAJAJ}$
 
-@SomeMidtownScientist
+$\color{#a55d3d}{@SomeMidtownScientist}$
 
 $\color{#a55d3d}{~HI ~MADDIEE >:) }$
 
@@ -78,7 +78,7 @@ $\color{#cd885d}{~LAST ~BUT ~NOT ~LEAST.. ~my ~newest}$
 $\color{#a55d3d}{~pinned ~friend!}$
 
 
-@sera741
+$\color{#a55d3d}{@sera741}$
 
 $\color{#a55d3d}{~HELLO ~SERA ~!!  ~HSHSHSJS }$
 
