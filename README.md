@@ -50,27 +50,29 @@ $\color{#b77a53}{------------------}$
 $\color{#a55d3d}{ SPECIAL ~mentions!! (~my ~pinned ~friends ~tht}$
 $\color{#cd885d}{~have ~github. FOLLOW ~THEM!! ~⁠♡)}$
 
-$\color{#a55d3d}{@StanMarshK1nn1e}$
+$\color{#cd885d}{~search ~their ~git ~urself ~oke..}$
+
+$\color{#a55d3d}{ (~⁠♡ ~. ~StanMarshK1nn1e}$
 
 $\color{#cd885d}{ ~I ~LOVE ~YOU ~so ~MUCH ~MY ~DEARESTT. ~⁠♡}$
 
-$\color{#cd885d}{@mentally-stable}
+$\color{#cd885d}{~♡ ~. ~mentally-stable}$
 
-$\color{#a55d3d}{ ~HIHII ~AVEE ~!! ~oomcf ~>_<}$
+$\color{#a55d3d}{ ~HIHII ~AVEE ~!! ~oomcf ~:P }$
 
-$\color{#cd885d}{@userrrxDDD}
+$\color{#cd885d}{~♡ ~. ~userrrxDDD}$
 
-$\color{#cd885d}{~HIII ~MIMII !! ~Another ~oomcf :)) }$
+$\color{#cd885d}{~HIII ~MIMII !! ~Another ~oomcf ~:)) }$
 
-$\color{#a55d3d}{@NatureRos3}
+$\color{#a55d3d}{~♡ ~. ~NatureRos3}$
 
-$\color{#a55d3d}{~HELLO ~HELLO ~ROARR ~!! ~>_<}$
+$\color{#a55d3d}{~HELLO ~HELLO ~ROARR ~!! ~:DD}$
 
-$\color{#cd885d}{@october15th}
+$\color{#cd885d}{~♡ ~. ~october15th}$
 
-$\color{#cd885d}{~HIHI ~YUMII ~JAJSJAJAJ}$
+$\color{#cd885d}{~HIHI ~YUMII ~JAJSJAJAJ ~°∆°}$
 
-$\color{#a55d3d}{@SomeMidtownScientist}$
+$\color{#a55d3d}{~♡ ~. ~SomeMidtownScientist}$
 
 $\color{#a55d3d}{~HI ~MADDIEE >:) }$
 
@@ -78,9 +80,9 @@ $\color{#cd885d}{~LAST ~BUT ~NOT ~LEAST.. ~my ~newest}$
 $\color{#a55d3d}{~pinned ~friend!}$
 
 
-$\color{#a55d3d}{@sera741}$
+$\color{#a55d3d}{~♡ ~. ~sera741}$
 
-$\color{#a55d3d}{~HELLO ~SERA ~!!  ~HSHSHSJS }$
+$\color{#a55d3d}{~HELLO ~SERA ~!!  ~HSHSHSJS ~<3 }$
 
 $\color{#cd885d}{~+My ~other ~oomfs ! ~it'll ~be ~too ~long ~to ~list ~all}$
 $\color{#a55d3d}{~of ~you ~here 0-0 , ~BUT ~LOVE ~YALL ~TOO!!}$
