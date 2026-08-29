@@ -1,6 +1,5 @@
 <img width="1200" height="175" alt="Image" src="https://github.com/user-attachments/assets/14511553-8367-42d0-a80e-67fbbee3c0ec" /> 
 
-$\color{#FF0000}{~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~}$ $\color{#cd885d}{loading~img.file . . Loading ~txt.file . .}$
 
 
 <img width="1200" height="675" alt="Image" src="https://github.com/user-attachments/assets/0af34deb-a142-48d9-8367-aa509323d6b3" />
@@ -92,13 +91,14 @@ $\color{#b77a53}{------------------}$
 
 $\color{#cd885d}{Thats ~pretty ~much ~it ..}$ $\color{#a55d3d}{Farewell ~and ~meet ~you ~someday , ~anonymous ~!}$ 🎀
 
-$\color{#cd885d}{WHERE ~DID ~MONIKA'S ~BOW ~GO..}$ 😳😤
-
-
+$\color{#b77a53}{------------------}$
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=18&duration=6000&pause=1000&color=A55D3D&center=true&width=435&lines=Everyday+%2C+i+imagine+a+future+where+i+can+be+with+you.;When+death+takes+my+hand+%2C+i+will+hold+you+with+the+other;and+promise+to+find+you+in+every+lifetime+.+%E2%81%A0%E2%99%A1;To+love+someone+is+lending+them+a+gun%2C;and+pray+that+they+wouldnt+want+to+pull+the+trigger+at+you.)](https://git.io/typing-svg)
 $\color{#b77a53}{------------------}$
 
 
 <img width="275" height="325" alt="Image" src="https://github.com/user-attachments/assets/bd8c2421-8b59-4fac-b54f-ecba336b033b" />
+
+$\color{#cd885d}{WHERE ~DID ~MONIKA'S ~BOW ~GO..}$ 😳😤
 
 
 <img width="1200" height="175" alt="Image" src="https://github.com/user-attachments/assets/4b1642bd-431f-4625-a1ac-d8c1aaec1994" />
