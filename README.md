@@ -81,6 +81,16 @@ $\color{#a55d3d}{~♡ ~. ~sera741}$
 
 $\color{#a55d3d}{~HELLO ~SERA ~!!  ~HSHSHSJS ~<3 }$
 
+$\color{#cd885d}{~SHOUT ~OUTS!!}$
+
+$\color{#cd885d}{~hi}$
+
+$\color{#a55d3d}{♡clownzyyaoi ~♡yaoiautism ~♡sapa-rata ~♡jabbeerr}$⁠
+$\color{#cd885d}{~♡KALE1D0SCOPE ~♡aeth3rr ~♡Beetlesarecoolerthanme}$
+$\color{#a55d3d}{~♡QUEENOFRAGE ~♡4trimony ~♡VOYAGE-Vyge ~!!}$
+
+$\color{#cd885d}{~OOMFS ~with ~REALLY ~wonderful ~githubs ~!! }$
+
 $\color{#cd885d}{~+My ~other ~oomfs ! ~it'll ~be ~too ~long ~to ~list ~all}$
 $\color{#a55d3d}{~of ~you ~here 0-0 , ~BUT ~LOVE ~YALL ~TOO!!}$
 
