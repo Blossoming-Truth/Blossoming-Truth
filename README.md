@@ -94,6 +94,10 @@ $\color{#cd885d}{~OOMFS ~with ~REALLY ~wonderful ~githubs ~!! }$
 $\color{#cd885d}{~+My ~other ~oomfs ! ~it'll ~be ~too ~long ~to ~list ~all}$
 $\color{#a55d3d}{~of ~you ~here 0-0 , ~BUT ~LOVE ~YALL ~TOO!!}$
 
+$\color{#cd885d}{~Amazing ~Trio ~in ~@pt-friendships! ~consist ~of ~me,~myself,~and ~i , ~@mentally-stable ~and ~@userrrxDDD ~I ~LOV ~YALL ~OKE?}$
+
+$\color{#a55d3d}{~Thank ~yu ~award ~accs! ~sorry}$ $\color{#cd885d}{ ~if ~i ~missed ~someone! ~@Ponychievements ~,}$ $\color{#a55d3d}{ ~@pt-friendships}$
+
 $\color{#b77a53}{------------------}$
 
 
