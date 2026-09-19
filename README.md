@@ -9,9 +9,4 @@ $\color{#652B2C}{ ~ Viverie ~ɞ}$
 $\color{#C96F5C}{ ~~~~~~~~~~~~~c*h ~enc ~✦ ~read ~byi ~repo ~.♡ }$
 $\color{#BC5956}{ ~~ ~~ ~~ ~~ ~~ ~✦ ~Thank ~you ~award ~accs. ✦}$
 
-
-
-<a href="">@mentally-stable</a>
-
-
 <img width="1717" height="454" alt="Image" src="https://github.com/user-attachments/assets/52ddf79b-1d81-4f14-a2db-31ce889a574b" />
