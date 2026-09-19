@@ -4,8 +4,8 @@
 
 $\color{#FF0000}{ ~~~~~~~~~~~~~~~~~~~~}$ ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FBlossoming-Truth%2FBlossoming-Truth%2Fedit%2Fmain%2FREADME.md&label=HUG%20ME!&labelColor=%23883b3c&countColor=%23eeae70)
 
-$\color{#D48262}{~~~~~~~~~~~~~~~~~~~~~ ʚ~ Viv}$ $\color{#8B3C3D}{~ /}$
-$\color{#652B2C}{ ~ Viverie ~ɞ}$
+$\color{#FF0000}{ ~~ ~~ ~~ ~~ ~~ ~~ ~ }$ <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/548f0d68-7586-4910-90d6-4802eefb4cc7" /> $\color{#D48262}{ ~ ʚ~ Viv}$ $\color{#8B3C3D}{~ /}$
+$\color{#652B2C}{ ~ Viverie ~ɞ}$ <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/548f0d68-7586-4910-90d6-4802eefb4cc7" />
 $\color{#C96F5C}{ ~~~~~~~~~~~~~c*h ~enc ~✦ ~read ~byi ~repo ~.♡ }$
 $\color{#BC5956}{ ~~ ~~ ~~ ~~ ~~ ~✦ ~Thank ~you ~award ~accs. ✦}$
 
