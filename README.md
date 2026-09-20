@@ -20,3 +20,9 @@ $\color{#FF0000}{ ~~~ ~~~~~~~~~~~~~~~~~~~~~~}$ [<img width="100" height="77" alt
 
 
 <img width="1717" height="454" alt="Image" src="https://github.com/user-attachments/assets/52ddf79b-1d81-4f14-a2db-31ce889a574b" />
+
+<details>
+    <summary>  </summary>
+    <p>
+$\color{#BC5956}{ ~PS: ~these ~arts ~do ~NOT ~belong ~to ~me ~, ~they ~belong ~to ~their ~respective ~owners!}$ 
+</details>
