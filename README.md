@@ -12,7 +12,7 @@ $\color{#BC5956}{ ~~ ~~ ~~ ~~ ~~ ~✦ ~Thank ~you ~award ~accs. ✦}$
   <details>
     <summary>  </summary>
     <p>
-     $\color{#D48262}{ ~♡~ @Ponychievements ~♡~ ~@pt-friendships  ~♡~ ~@kaotown }$ $\color{#C96F5C}{ ~♡~ ~@Pt-heavyfictkin ~♡~ @Paw-town }$
+     $\color{#D48262}{ ~♡~ @Ponychievements ~♡~ ~@pt-friendships  ~♡~ ~@kaotown }$ $\color{#C96F5C}{ ~♡~ ~@Pt-heavyfictkin ~♡~ @Paw-town ~♡~ @NOLIMINATIONS }$
   </details>
 
 
