@@ -7,3 +7,5 @@
 <img width="1772" height="543" alt="IMG_20261121_195221" src="https://github.com/user-attachments/assets/9b1a32ac-514e-4e48-8564-ad7e082c12c4" />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+new+roman&duration=4000&pause=800&delay=800&color=4C3209&center=true&vCenter=true&width=435&lines=...;You're+not+stuck+..+lets+do+this+together!;Put+the+gun+down+and+stay-;...;...;You+asked+me+where+your+base+is+9+times.;Your+base's+direction+is+behind+you!;No+you+didn't.)](https://git.io/typing-svg)
+
+<img width="1572" height="274" alt="IMG_20261122_005246" src="https://github.com/user-attachments/assets/ee4eb6ab-e5af-4fd2-988a-1900723fa285" />
