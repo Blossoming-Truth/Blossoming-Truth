@@ -8,6 +8,11 @@
 
 <img width="113" height="73" alt="IMG_20261120_233506" src="https://github.com/user-attachments/assets/99ea3dc6-0ecf-436e-9fb7-87d6e80981e6" />
 
+  <details>
+    <summary>  </summary>
+    <p>
+$\color{#D48262}{ ~♡~ @Ponychievements ~♡~ ~@pt-friendships  ~♡~ ~@kaotown }$ $\color{#C96F5C}{ ~♡~ ~@Pt-heavyfictkin ~♡~ @Paw-town ~♡~ @NOLIMINATIONS  }$
+  </details>
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+new+roman&duration=4000&pause=800&delay=800&color=4C3209&center=true&vCenter=true&width=435&lines=...;You're+not+stuck+..+lets+do+this+together!;Put+the+gun+down+and+stay-;...;...;You+asked+me+where+your+base+is+9+times.;Your+base's+direction+is+behind+you!;No+you+didn't.)](https://git.io/typing-svg)
