@@ -13,7 +13,7 @@ $\color{#FF0000}{~~~~~~~~~~~~~~~~~~~~~~~~~~}$![visitors](https://visitor-badge.l
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+new+roman&duration=4000&pause=800&delay=800&color=4C3209&center=true&vCenter=true&width=435&lines=...;You're+not+stuck+..+lets+do+this+together!;Put+the+gun+down+and+stay-;...;...;You+asked+me+where+your+base+is+9+times.;Your+base's+direction+is+behind+you!;No+you+didn't.)](https://git.io/typing-svg)
 
-$\color{#FF0000}{~~~~~~~~~~~~~~~~~~~~~~~~~~}$!![visitors](https://visitor-badge.laobi.icu/badge?page_id=Blossoming-Truth%40users.noreply.github.com&left_text=ETERNAL%20.&left_color=%23493205&right_color=%235F4104&height=17)
+$\color{#FF0000}{~~~~~~~~~~~~~~~~~~~~~~~~~~}$![visitors](https://visitor-badge.laobi.icu/badge?page_id=Blossoming-Truth%40users.noreply.github.com&left_text=ETERNAL%20.&left_color=%23493205&right_color=%235F4104&height=15)
 
 <img width="1572" height="274" alt="IMG_20261122_142115" src="https://github.com/user-attachments/assets/beec6f1a-c068-40ed-87a9-56de2a1ffcb6" />
 
