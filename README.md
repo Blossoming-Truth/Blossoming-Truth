@@ -8,7 +8,7 @@ $\color{#FF0000}{~~~~~~~~~~~~~~~~~~~~~~~~~~~}$![visitors](https://visitor-badge.
 
 <img width="1772" height="543" alt="IMG_20261121_195221" src="https://github.com/user-attachments/assets/9b1a32ac-514e-4e48-8564-ad7e082c12c4" />
 
-[ <img width="1772" height="581" alt="IMG_20261122_140341" src="https://github.com/user-attachments/assets/8c248e1d-746d-43de-ac7e-a59f242a88ee" /> ](https://loveandliterature.atabook.org/)
+[ <img width="1772" height="581" alt="IMG_20261122_140341" src="https://github.com/user-attachments/assets/8c248e1d-746d-43de-ac7e-a59f242a88ee" /> ](https://eternal-greiving.atabook.org/)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+new+roman&duration=4000&pause=800&delay=800&color=4C3209&center=true&vCenter=true&width=435&lines=...;You're+not+stuck+..+lets+do+this+together!;Put+the+gun+down+and+stay-;...;...;You+asked+me+where+your+base+is+9+times.;Your+base's+direction+is+behind+you!;No+you+didn't.)](https://git.io/typing-svg)
 
