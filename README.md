@@ -11,7 +11,7 @@
   <details>
     <summary>  </summary>
     <p>
-$\color{#D48262}{ ~♡~ @Ponychievements ~♡~ ~@pt-friendships  ~♡~ ~@kaotown }$ $\color{#C96F5C}{ ~♡~ ~@Pt-heavyfictkin ~♡~ @Paw-town ~♡~ @NOLIMINATIONS  }$
+$\color{#7F000B}{ ~Thank you award accs. }$ $\color{#580404}{ ~flw  ~@NatureRos3 ~, ~@StanMarshK1nn1e ~. ~♡ }$
   </details>
 
 
