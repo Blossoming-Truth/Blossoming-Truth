@@ -8,13 +8,15 @@
 
 <img width="113" height="73" alt="IMG_20261120_233506" src="https://github.com/user-attachments/assets/99ea3dc6-0ecf-436e-9fb7-87d6e80981e6" />
 
-  <details>
-    <summary>  </summary>
-    <p>
-$\color{#7F000B}{ ~Thank you award accs. }$ $\color{#580404}{ ~flw  ~@NatureRos3 ~, ~@StanMarshK1nn1e ~. ~♡ }$
-  </details>
-
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+new+roman&duration=4000&pause=800&delay=800&color=4C3209&center=true&vCenter=true&width=435&lines=...;You're+not+stuck+..+lets+do+this+together!;Put+the+gun+down+and+stay-;...;...;You+asked+me+where+your+base+is+9+times.;Your+base's+direction+is+behind+you!;No+you+didn't.)](https://git.io/typing-svg)
 
 <img width="1572" height="274" alt="IMG_20261122_005246" src="https://github.com/user-attachments/assets/ee4eb6ab-e5af-4fd2-988a-1900723fa285" />
+
+
+  <details>
+    <summary>  </summary>
+    <p>
+$\color{#7F000B}{ ~Thank ~you ~award ~accs. ~i ~appreciate ~it! }$ $\color{#580404}{ ~flw  ~@NatureRos3 ~, ~@StanMarshK1nn1e ~. ~♡ }$ $\color{#7F000B}{ art belongs 2 their talented owner. }$ 
+  </details>
+  
