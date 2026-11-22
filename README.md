@@ -17,6 +17,6 @@
   <details>
     <summary>  </summary>
     <p>
-$\color{#7F000B}{ ~Thank ~you ~award ~accs. ~i ~appreciate ~it! }$ $\color{#580404}{ ~flw  ~@NatureRos3 ~, ~@StanMarshK1nn1e ~. ~♡ }$ $\color{#7F000B}{ art belongs 2 their talented owner. }$ 
+$\color{#7F000B}{ ~Thank ~you ~award ~accs. ~i ~appreciate ~it! }$ $\color{#580404}{ ~flw  ~@NatureRos3 ~, ~@StanMarshK1nn1e ~. ~♡ }$ $\color{#7F000B}{ ~art ~belongs ~2 ~their ~talented ~owner. }$ 
   </details>
   
